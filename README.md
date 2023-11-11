@@ -1,2 +1,2 @@
-# https://https://ricardopequeno.github.io/segundosite/
+# https://https://ricardopequeno.github.io/segundosite
 ondegiparou
